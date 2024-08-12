@@ -1,1 +1,1 @@
-# ResearchInternshipAtCU
+# Research Internship At CU Boulder
